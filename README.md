@@ -1,0 +1,2 @@
+# lemon
+Jangan mudah menyerah
